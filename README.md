@@ -93,6 +93,15 @@
 - **Ahmed Nagah** 🔗 [رابط القناة](https://youtube.com/@livebughunting)
 - **Eng. Ahmed Sultan** 🔗 [رابط القناة](https://www.youtube.com/@0x4148)
 
+### 🎥 قنوات تليجرام لازم تتابعها:
+
+(https://t.me/Dark_Owl_Official)
+https://t.me/CyberSecurityforall24
+https://t.me/rednexus1
+https://t.me/bugerab
+https://t.me/Hide_Club
+
+
 ---
 
 ## **4️⃣ الشهادات (Certifications) – مش ضرورية لكن مفيدة**
